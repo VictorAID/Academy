@@ -1,3 +1,3 @@
-﻿Blossom Academy is the best in the world and africa.
+﻿Blossom Academy is the one of the best in the world.
 God is great.
 I am grateful for everything Lord
